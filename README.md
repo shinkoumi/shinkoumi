@@ -1,5 +1,5 @@
 
- ![img](https://i.imgur.com/5DJdAwH.png)
+ ![img](https://i.imgur.com/9a180IS.png)
 
   **hi, i am [seong](https://github.com/shinkoumi/about)** <sub>+81/🇯🇵 +852/🇭🇰</sub>
 
