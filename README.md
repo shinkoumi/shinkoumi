@@ -1,7 +1,5 @@
 
- ![img](https://i.imgur.com/uO43FxJ.png)
+ ![img](https://i.imgur.com/InUKl34.png)
 
-  **hi, i am [seong](https://github.com/shinkoumi/about)** <sub>+81/🇯🇵 +852/🇭🇰</sub>
-
-  [<img src="https://img.shields.io/badge/Line-00C300?style=for-the-badge&logo=line&logoColor=white">](https://line.me/ti/p/kb4DfDQJJT) [<img src="https://img.shields.io/badge/Patreon-green?style=for-the-badge&logo=patreon&color=f96854">](https://patreon.com/seongmin)
-
+  [<b>Seong</b>](https://github.com/shinkoumi/about)min⠀͏͏͏or⠀͏͏͏Prince⠀͏͏͏<sub>+82/ᴋʀ⠀͏͏͏+852/ʜᴋ</sub>
+<br>he⠀͏͏͏him.⠀͏͏͏16 yrs⠀͏͏͏—⠀͏͏͏日本 / 한국 OK
